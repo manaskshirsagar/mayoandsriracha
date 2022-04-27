@@ -19,5 +19,7 @@ find this fricking simple ass recipe that some content creator is lying to you a
 - phase 1
 - phase 3
 - phase 2
+- phase 4
+- final final phase
 
 ## Final notes
