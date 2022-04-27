@@ -21,3 +21,4 @@ find this fricking simple ass recipe that some content creator is lying to you a
 - phase 2
 
 ## Final notes
+Do not use any radioactive ingredients as the sriracha is perfectly spicy on it's own. 
