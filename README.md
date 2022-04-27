@@ -3,7 +3,7 @@ A novel way to make sriracha mayo
 
 
 ## Intro
-or long has humanity dealt with roughly guessing sriracha and mayo 
+For long has humanity dealt with roughly guessing sriracha and mayo 
 
 ## Recipe
 
