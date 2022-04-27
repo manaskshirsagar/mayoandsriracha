@@ -1,6 +1,6 @@
 # mayoandsriracha
-A reliable, easy, and novel way to make sriracha mayo
 
+A reliable, easy, and novel way to make sriracha mayo
 
 ## Intro
 For long has humanity dealt with roughly guessing sriracha and mayo. The following recipe describes a method to
