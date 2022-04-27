@@ -4,7 +4,8 @@ A novel way to make sriracha mayo
 
 ## Intro
 For long has humanity dealt with roughly guessing sriracha and mayo. The following recipe describes a method to
-make sriracha and mayo from scratch with painstaking detail.  
+make sriracha and mayo from scratch with painstaking detail. Long gone will be the days of going on youtube to 
+find this fricking simple ass recipe that some content creator is lying to you about.   
 
 ## Recipe
 
