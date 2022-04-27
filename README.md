@@ -1,5 +1,5 @@
 # mayoandsriracha
-A novel way to make sriracha mayo
+A reliable, easy, and novel way to make sriracha mayo
 
 
 ## Intro
